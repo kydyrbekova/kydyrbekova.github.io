@@ -1,0 +1,2 @@
+# kydyrbekova.github.io
+CV
